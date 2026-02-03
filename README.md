@@ -1,4 +1,4 @@
-# shadowrockect-for-android download下载
+# shadowrockect-for-android download，ClashX，小火箭安卓APP，APK，应用，软件下载，小火箭节点购买
 shadowrockect-for-android download shadowrockect小火箭安卓APP APK下载节点购买  
 
 Shadowrockect小火箭、ClashX下载（download）链接  
